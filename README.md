@@ -1,6 +1,6 @@
 Members
 
-Mark Anthony Sood 
+Mark Anthony C. Sood 
 
 
 Axelroy M. Socobos
